@@ -1,4 +1,4 @@
-# 
+# Automático Avast Premium Security extensiones para Mac OS | Seguro Avast Premium Security extensiones para PC Windows. Con acceso de emergencia y protección contra fugas de DNS — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
